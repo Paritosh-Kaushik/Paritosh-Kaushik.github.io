@@ -1,1 +1,0 @@
-# Paritosh-Kaushik.github.io
